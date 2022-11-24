@@ -1,1 +1,1 @@
-You can call me Thinh (thin). I work as a Front-end engineer @ Setel.
+You can call me Thinh (thinn). I work as a Front-end engineer at Setel.
